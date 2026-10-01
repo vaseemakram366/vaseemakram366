@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm yash bhardwaj
+# 💫 Hi 👋, I'm vaseem akram
 **A passionate Fullstack Engineer || AI Engineer 
 
 Email Me 👉 ✉️ **vaseemakrama366@gmail.com** For Collaboration/Project or Anything Else. 😊😊
